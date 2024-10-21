@@ -14,7 +14,7 @@ My work has been showcased in industry publications like the Joan B. Kroc Instit
 By combining innovation, creativity, and an expert eye for photography, I bring your story to life through powerful visual products.
 
 ## Resume
-View my resume
+View my resume.
 
 ## Contact Me
 Let’s chat over a brew—coffee, tea, or something stronger.
